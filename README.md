@@ -2,7 +2,7 @@
 
 Helloooo, I'm Rafaela :v: "I come from America Latina, I come from a place called SP, I was born to be a dreamer, raised along the Tietê" [América Latina - Mallu Magalhães](https://www.youtube.com/watch?v=q8Q-9DHzoZE&ab_channel=MalluMagalh%C3%A3es). 
 
-:woman_technologist: Backend Developer at [SenseData](https://sensedata.com.br/) :bar_chart:	
+:woman_technologist: Software Engineer at [SenseData](https://nubank.com.br/) :bar_chart:	
 
 :books: book lover, :camera_flash: photography enthusiast, :woman_cook:	cooking apprentice, people pleaser and I truly believe that everything that Phoebe Waller-Bridge touches turns into gold
 
