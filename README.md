@@ -1,6 +1,6 @@
 # Rafaela Guimarães 
 
-Helloooo, I'm Rafaela :v: "I come from America Latina, I come from a place called SP, I was born to be a dreamer, raised along the Tietê" [América Latina - Mallu Magalhães](https://www.youtube.com/watch?v=q8Q-9DHzoZE&ab_channel=MalluMagalh%C3%A3es). 
+Helloooo, I'm Rafaela :v:
 
 :woman_technologist: Software Engineer at [Nubank](https://nubank.com.br/) :bar_chart:	
 
